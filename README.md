@@ -1,1 +1,1 @@
-# Kyosui-Inc.github.io
+Welcome to the Kyosui Inc. website! We're thrilled to have you here. At Kyosui Inc., we are committed to delivering innovative solutions and high-quality products to meet the needs of our customers. Explore our site to learn more about our services, values, and the exciting projects we’re working on. Thank you for visiting, and we look forward to connecting with you!
